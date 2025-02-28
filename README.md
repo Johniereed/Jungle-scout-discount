@@ -111,8 +111,11 @@ Jungle Scout is a powerful tool for Amazon sellers, but it can be expensive. Tha
 **What You Get:**
 
 👉 Up to 50% off on Jungle Scout plans
+
 👉 Special plans not available elsewhere
+
 👉 Full one-year access to the Suite Plan
+
 👉 Freedom Builder Bootcamp Course to grow your Amazon business
 
 ## Jungle Scout Discount Reddit
